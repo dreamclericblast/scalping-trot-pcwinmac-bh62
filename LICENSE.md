@@ -1,4 +1,4 @@
-# 
+# Elite scalping trading bot presets for Mac OS | Professional scalping trading bot presets for PC Windows. Featuring futures trading and momentum analysis — optimized for maximum performance.
 
 
 
